@@ -1,6 +1,6 @@
 ## boas vindas ao meu perfil 💙
 
-meu nome e diego augustoo
+meu nome e LEONI 
 
 -estou estudando no alura
 
